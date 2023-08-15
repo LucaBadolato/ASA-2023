@@ -1,1 +1,1 @@
-# Handout material for the American Sociological Association annual meeting
+# Handout material for the American Sociological Association annual meeting 2023
