@@ -1,4 +1,4 @@
-# Handout material for the American Sociological Association annual meeting 2023
+# Handout material for the ASA 2023
 
 **The Correspondence Between Fertility Desires and Intentions**
 
